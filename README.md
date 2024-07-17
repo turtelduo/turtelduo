@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @turtelduo
-- 👀 I’m interested in piano jazz and classic guitar rock
+- 👀 I’m interested in listening to piano jazz and playing classic guitar rock
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me https://turtelduo.com
